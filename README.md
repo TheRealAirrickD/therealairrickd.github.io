@@ -1,2 +1,5 @@
 # therealairrickd.github.io
-A random website on the world wide web
+Hello!
+Subscribe To My Youtube Channel!
+youtube.com/c/airrickd
+Thanks For Stopping By!
