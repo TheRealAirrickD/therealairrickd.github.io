@@ -1,2 +1,2 @@
 # therealairrickd.github.io
-yeetmahmeat
+A random website on the world wide web
